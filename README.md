@@ -1,0 +1,1 @@
+# coinpilot-privacy-policy
